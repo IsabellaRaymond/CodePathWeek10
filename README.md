@@ -14,9 +14,9 @@ Time spent: **X** hours spent in total
 
 ## Assignment: The Dark Side
 
-* Challenge 1.1__________
-* Challenge 1.2 ____________________
-* Challenge 
+* Challenge 1.0___https://imgur.com/a/OlKV8VE_______
+* Challenge 1.1 ___________https://imgur.com/a/EHh9fFd_________
+* Challenge 1.2_______https://imgur.com/a/psRBa74____
 * Challenge
 * Challenge
 * Challenge
